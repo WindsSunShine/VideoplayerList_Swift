@@ -8,7 +8,7 @@
 
 ## Contacts
 
-####If you wish to contact me, email at: hi@jinxiansen.com
+####If you wish to contact me, email at: jinajunios@icloud.com
 
 #####新浪微博 : [@windsSunShine](http://weibo.com/5789998869/)
 #####博客园 : [@windsSunShine ](https://www.cnblogs.com/windsSunShine/)
